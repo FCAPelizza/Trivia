@@ -1,4 +1,4 @@
-I always found trivias to be a funny and very interesting, I really do enjoy watching, listening and reading about some obscure information that was lost in the depths of turbolent ocean that is history. 
+I always found trivias to be a funny and very interesting, I really do enjoy watching, listening and reading about some obscure information that was lost in the depths of turbulent ocean that human knowledge is. 
 That is why I started annoying the hell out of my family with some stupid-ass trivia that only nerds might really care about, it turned into kind of a tradition for us, I told them trivia during dinner in the form of some kind of quiz, they complained because they were dumb or they already knew about them or they were too nerdy for them to know.
 Now I will annoy you too, so put on your big boy boots for an very unorganized adventure in the most useless depths of human knowledge.
 
